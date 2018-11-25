@@ -9,7 +9,7 @@
 # Leo101
  > Accused of skidding because he is 1337 haxor and cool kid.
  
- # SpecDaSavageYT or Niada
+ # Spec or Niada
   > Hes a 1337 skid, Like super saiyan skid, Can't stop touching other client bases.
  
  # Skid Revenant / AimbotPvP
