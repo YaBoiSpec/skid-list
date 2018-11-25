@@ -17,6 +17,7 @@
   
   # Jucy
    > Doesn't understand any java obviously. Stole his speed check right out of fiona or deadalus
+   https://cdn.discordapp.com/attachments/514596792340447253/516042744230313990/unknown.png
    
   # Funkemunky
    > Couldn't make a simple phantom aimassist check, had to ask others for code huge devouch major skid.
