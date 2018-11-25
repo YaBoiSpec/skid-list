@@ -16,7 +16,7 @@
   > His name shows he is a big skid, he even skidded that damn name like holy shit.
   
   # Jucy
-   > Doesn't understand any java obviously. Stole his speed check right out of fiona or deadalus
+   > Doesn't understand any java obviously. Stole his speed check right out of fiona or deadalus. Also touches janitor alot.
    https://cdn.discordapp.com/attachments/514596792340447253/516042744230313990/unknown.png
    
   # Funkemunky
