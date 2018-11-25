@@ -8,3 +8,15 @@
  
 # Leo101
  > Accused of skidding because he is 1337 haxor and cool kid.
+ 
+ # SpecDaSavageYT or Niada
+  > Hes a 1337 skid, Like super saiyan skid, Can't stop touching other client bases.
+ 
+ # Skid Revenant / AimbotPvP
+  > His name shows he is a big skid, he even skidded that damn name like holy shit.
+  
+  # Jucy
+   > Doesn't understand any java obviously. Stole his speed check right out of fiona or deadalus
+   
+  # Funkemunky
+   > Couldn't make a simple phantom aimassist check, had to ask others for code huge devouch major skid.
